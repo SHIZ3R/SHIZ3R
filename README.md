@@ -11,5 +11,5 @@
 - 💬 Ask me about how to get bitches
 - 📫 How to reach me: alt+f4
 - 😄 Pronouns: Nick/Her
-- ⚡ Fun fact: Hapmter
+- ⚡ Fun fact: Hampter
 
